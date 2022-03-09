@@ -4,3 +4,6 @@
 
 coding
 https://shaoyuan-coding.blogspot.com/
+
+trading
+https://shaoyuan-trading.blogspot.com/
