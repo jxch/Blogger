@@ -7,3 +7,6 @@ https://shaoyuan-coding.blogspot.com/
 
 trading
 https://shaoyuan-trading.blogspot.com/
+
+thing
+https://shaoyuan-thinking.blogspot.com/
