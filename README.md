@@ -8,5 +8,5 @@ https://shaoyuan-coding.blogspot.com/
 trading
 https://shaoyuan-trading.blogspot.com/
 
-thing
+thinking
 https://shaoyuan-thinking.blogspot.com/
